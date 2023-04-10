@@ -22,3 +22,5 @@ I believe that everyone can benefit from combining code and finance, whether you
 
 
 Thank you for joining me on this journey! I’m excited to share my knowledge and help you achieve your financial goals through the power of coding.
+
+thank you for your interesst about my great blog codeplusfinance.com
